@@ -1,0 +1,1 @@
+# Co-nie-ma-duszy-i-co-jest-maszyn-na-rynku
